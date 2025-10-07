@@ -1,4 +1,4 @@
-🌼 Hey, Samiksha !
+🌼 Hey, Samiksha here !
 
 💻 I love creating things — from small coding projects to ideas that can actually make someone’s life easier.
 🎯 I enjoy learning at my own pace and turning every new skill into something practical and fun.
@@ -7,4 +7,4 @@
 🎨 Outside tech, you’ll find me obsessed with fashion, food, and aesthetics (yes, all at once 😌).
 💫 Always open to learning, collaborating, and trying something new.
 
-📫 Reach me at [samikshac1001@gmail.com]
+📫 Reach me at samikshac1001@gmail.com
