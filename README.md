@@ -1,4 +1,4 @@
-### 🌼 Hey, I'm samiksha!  <br><br>💻 I love creating things — from small coding projects to ideas that can actually make someone’s life easier.  <br>🎯 I enjoy learning at my own pace and turning every new skill into something practical and fun.  <br>💬 I believe consistency > perfection — every day is just about getting a little better.  <br>🌱 Currently focusing on improving my skills in **Python, web development, and data science**.  <br>🎨 Outside tech, you’ll find me obsessed with **fashion, food, and aesthetics** (yes, all at once 😌).  <br>💫 Always open to learning, collaborating, and trying something new.  <br><br>📫 Reach me at **samikshac1001@gmail.com**  <br>
+### 🌼 Hey, I'm samiksha!  <br><br>💻 I love creating things — from small coding projects to ideas that can actually make someone’s life easier.  <br>  <br>💫 Always open to learning, collaborating, and trying something new.  <br><br>📫 Reach me at **samikshac1001@gmail.com**  <br>
 
 
 ## 🌐 Socials:
